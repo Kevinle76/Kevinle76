@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello there 👋
 
 
 - 🔭 Im Khanh Le, currently is student from University of Georgia Institute Technology’s data analytics bootcamp. Here, I am learning alots of skills such as: Python,   SQL, HTML, R, etc. 
