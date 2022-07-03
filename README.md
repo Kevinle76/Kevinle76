@@ -5,4 +5,4 @@
 
 - 🌱 With many years of experience in Business Analysis, Financial Analysis and over 10 years of experience in Business Managememt, so I am so exicited to join Data Analyst team.
 
-- ⚡ I love reading books, running and swimming. My wish I could run at all states. Until now, I have run at 8 states.
+- ⚡ I love reading books, running and swimming. My wish I could run across the country. Until now, I have run at 8 states.
